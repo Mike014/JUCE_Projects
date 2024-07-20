@@ -31,5 +31,5 @@ For questions, suggestions, or collaborations, do not hesitate to contact us thr
 
 ---
 
-💡 Developed with passion and ☕ by [YourName] and contributors.
+💡 Developed with passion and ☕ by [M1k3_S0und] and contributors.
 
